@@ -1,3 +1,6 @@
+Finance
+- [Yahoo Finance](https://finance.yahoo.com)
+- [Stock Story](https://stockstory.org/)
 
 Vista Grande Elementary School
 - [1st grace 2026-2027](https://sites.google.com/srvusd.net/montevagodalmada/)
